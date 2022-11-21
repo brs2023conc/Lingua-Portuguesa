@@ -1,1 +1,1 @@
-abóbora
+pumpkin
